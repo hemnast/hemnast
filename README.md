@@ -1,5 +1,3 @@
-I do audio technology stuff.
-
 http//linktr.ee/rhun
 
 <!---
